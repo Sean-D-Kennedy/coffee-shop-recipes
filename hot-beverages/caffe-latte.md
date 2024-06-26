@@ -5,7 +5,7 @@
 ## Ingredients
 
 - 1 oz espresso roast
-- 1 cup soya milk
+- 2 cups of soya milk
 - Milk frother
 - Optional sweetener
 
